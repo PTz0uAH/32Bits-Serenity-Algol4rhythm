@@ -4,7 +4,9 @@ The devine "algol4rhythm" that shaped BC &amp; AD, metaphorically described as g
 Lectori Salutem.. "There is only 1 road 2(π)nls" & "youcancountonusas1nationunder ..." & "1 Pororoca coming up @an38orage.." & koenst von divide J(HY)aus|deUSA L EM et impera J€ RUS AL EM o.i.d. 😉
 
 UZYNGPAMAN
+
 0098304==1 (Берлин `45 30th of April to save the Dutch monarchy!)
+
 0147456==2
 0245760==3
 0270336==4
