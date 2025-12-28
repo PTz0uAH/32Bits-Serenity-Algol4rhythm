@@ -1,6 +1,4 @@
 # 32Bits-Serenity-Algol4rhythm (K0ENSTWERCK)
-The devine "algol4rhythm" that shaped BC &amp; AD, metaphorically described as golden leaves from a tree of perfect constants..
-
 Lectori Salutem.. "There is only 1 road 2(π)nls" & "youcancountonusas1nationunder ..." & "1 Pororoca coming up @an38orage.." & koenst von divide J(HY)aus|deUSA L EM et impera J€ RUS AL EM o.i.d. 😉
 
 UZYNGPAMAN
